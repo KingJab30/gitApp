@@ -1,1 +1,2 @@
-# updated info for gitApp by developer B!!!!!!!!!!!!!!!!!
+# updated info for gitApp by developers on the team!!!!!!!!!!!!!!!!!
+
