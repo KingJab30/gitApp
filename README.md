@@ -1,1 +1,1 @@
-# gitApp
+# updated info for gitApp by developer B!!!!!!!!!!!!!!!!!
